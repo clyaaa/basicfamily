@@ -1,0 +1,9 @@
+# basicfamily
+![871699718921_ pic](https://github.com/clyaaa/basicfamily/assets/44672573/135f5a73-5289-47f0-a074-12fdd6344dc6)
+![881699718947_ pic](https://github.com/clyaaa/basicfamily/assets/44672573/56788395-4484-4d7c-b264-d78ecd2701ae)
+![891699719735_ pic](https://github.com/clyaaa/basicfamily/assets/44672573/5d88c568-9886-4fe2-a1c8-c92ebcad0241)
+![911699726473_ pic](https://github.com/clyaaa/basicfamily/assets/44672573/98514e20-2b9a-4812-aa74-75bbef555a5e)
+![921699726494_ pic](https://github.com/clyaaa/basicfamily/assets/44672573/8e68b8fc-f39d-41f6-8ccf-18392ed3746f)
+![931699726528_ pic](https://github.com/clyaaa/basicfamily/assets/44672573/fb62e137-f2e6-4d9b-bb94-cf60267daadf)
+![941699772465_ pic_hd](https://github.com/clyaaa/basicfamily/assets/44672573/e5d05e75-292a-435c-acc9-f7ef3132443a)
+![951699772478_ pic](https://github.com/clyaaa/basicfamily/assets/44672573/83a16db0-394a-4d4a-8cc0-b1d1abc15da8)
